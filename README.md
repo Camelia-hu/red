@@ -1,2 +1,2 @@
+![image](https://github.com/Camelia-hu/red/assets/160568871/25e771c2-abfa-477d-aea1-4654a1783f9c)
 
-![b5696feec1d99c236011395e2c6a33d0](https://github.com/Camelia-hu/red/assets/160568871/e5738bcb-e747-439e-a481-9277b4d88568)
